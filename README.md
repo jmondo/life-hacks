@@ -67,9 +67,6 @@ What it's good for:
 
 * Whenever you aren't tired and need to sleep.
 
-Not good for:
-* Insomniacs. If you normally can't sleep when you are tired, this won't really help. It just makes you tired.
-
 ### Traveling East Part 2: _I'm exhausted at work!_
 
 **Caffeine** is a fine solution for this. It blocks your tired receptors, directly making you less tired. Also increases focus and athletic performance. Works better for non-coffee addicts. Explanation on how it works from [ASAPScience (video)](https://www.youtube.com/watch?v=4YOwEqGykDM). One coffee (or 100mg if taken in pill form) should be enough for non-regular caffeine drinkers. But do this instead:
